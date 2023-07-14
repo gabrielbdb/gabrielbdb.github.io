@@ -1,6 +1,8 @@
 # gabrielbdb.github.io
 
-## Bem vindo ao meu site
+## Braga's Website
+
+## Entre no meu site e busque mais informações sobre mim (https://gabrielbdb.github.io/)
 
 ### Abaixo algumas redes sociais que você poderá entrar em contato comigo
 
